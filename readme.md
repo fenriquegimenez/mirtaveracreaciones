@@ -2,4 +2,4 @@
 
 ### Sitio web para mirtaveracreaciones.com
 
-Hecho con <3 en San Lorenzo, Paraguay.
+Hecho con ❤ en San Lorenzo, Paraguay.
